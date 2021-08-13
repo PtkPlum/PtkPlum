@@ -1,4 +1,4 @@
-👋 Hi, I’m PtkPlum. What's your name?
+👋 Hi, I’m PtkPlum, 22 years. What's your name?
 
 👀 I’m interested in Math Model, Artificial Intelligent, Operation Research, Pure Math, Visual Art, Music
 
